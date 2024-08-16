@@ -146,3 +146,5 @@ Designed with you in mind, our sleek and intuitive user interface allows for smo
 
 
 ### 🔗 Linkedin Link
+https://www.linkedin.com/in/sakshi-singh-80a885288?
+
